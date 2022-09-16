@@ -11,4 +11,4 @@
 ### Contact us
 
 * Francesco Cauteruccio, Ph.D. – Polytechnic University of Marche (Italy) – [f.cauteruccio@univpm.it](mailto://f.cauteruccio@univpm.it), [francescocauteruccio.info](https://francescocauteruccio.info)
-* Aldo Marzullo, Ph.D. – University of Calabria (Italy) - [marzullo@mat.unical.it](mailto://marzullo@mat.unical.it)
+* Aldo Marzullo, Ph.D. – University of Calabria (Italy) - [marzullo@mat.unical.it](mailto://marzullo@mat.unical.it), [linkedin.com/in/aldo-marzullo24/](https://www.linkedin.com/in/aldo-marzullo24/)
